@@ -1,3 +1,2 @@
-# Hello-from-Holland
-65 years, but never to old to learn
-Maybe fun when I'm retired
+# Hello-from-Haarlem
+Now i'm retired i've time 4 fun !!!!
