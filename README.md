@@ -1,2 +1,2 @@
 # Hello-from-Haarlem
-Now i'm retired i've time 4 fun !!!!
+Now i'm retired and i've time 4 fun !!!!
